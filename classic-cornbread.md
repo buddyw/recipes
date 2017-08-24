@@ -16,13 +16,17 @@ Preheat oven to 400 Degrees.  If you are using a cast iron pan, preheat that (oi
 * 1 cup of milk
 * 1/4 cup oil or fat (I prefer melted coconut oil or butter)
 
-## If using buttermilk or yogurt:
+Stir until it's combined, but still lumpy.  Pour into hot oiled cast iron skillet or greased 9x9 baking pan.  Cook for about 25 min or until it browns.
+
+## Modifications:
+
+### If using buttermilk or yogurt:
 
 * use 1 cup of buttermilk or plain yogurt instead of milk
 * use only 2 tsp of baking powder instead of 4
 * add 2 tsp of baking soda
 
-## For Gluten Free options:
+### For Gluten Free options:
+
 TBD - still playing with GF flour replacements
 
-Stir until it's combined, but still lumpy.  Pour into hot oiled cast iron skillet or greased 9x9 baking pan.  Cook for about 25 min or until it browns.
