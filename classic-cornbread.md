@@ -2,7 +2,7 @@
 
 Preheat oven to 400 Degrees.  If you are using a cast iron pan, preheat that (oiled) as well.
 
-## Mix Together:
+### Mix Together:
 
 * 1 cup of whole wheat flour
 * 1 cup of corn meal
@@ -10,7 +10,7 @@ Preheat oven to 400 Degrees.  If you are using a cast iron pan, preheat that (oi
 * 1/2 tsp kosher salt
 * 2 tbsp brown sugar
 
-## Make a well and add:
+### Make a well and add:
 
 * 2 beaten eggs
 * 1 cup of milk
