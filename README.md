@@ -1,2 +1,3 @@
-# recipes
-A collection of recipes for dishes that I like to make
+# Recipes
+
+This is a collection of recipes for dishes that I actually make on a regular basis.
