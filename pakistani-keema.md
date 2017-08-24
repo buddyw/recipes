@@ -22,4 +22,8 @@
 
 Cover and simmer 25 minutes. Serve with rice and optionally garnish with coconut.  Serves 5-6.
 
-<b id="f1">1</b> Recipe by Ann Naylor from Ames, Iowa and from The book "More with Less" by Doris Janzen Longacre p. 131. [↩](#a1)
+
+
+
+
+<b id="f1"><sup>1</sup></b> Recipe by Ann Naylor from Ames, Iowa and from The book "More with Less" by Doris Janzen Longacre p. 131. [↩](#a1)
