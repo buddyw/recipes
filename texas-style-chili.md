@@ -4,14 +4,13 @@
 * 1 lb marrow/soup bones
 * 1 stalk celery
 * 1 med onion quartered
-* 1 + 1/2 cups dry red wine
+* 1 + 1/2 cups dry red wine (optional)
 * 1 bay leaf
 * 1 Tbsp whole white pepper corns
-* water
+* water to cover
 
 ## Chili Ingredients:
-* 1 lb ground beef
-* 1 lb ground pork or lamb
+* 2 lb ground beef, deer, pork, or lamb (if you use deer, pair it with fattier meat)
 * beef stock and marrow from above
 * cumin
 * ancho chili powder
@@ -33,4 +32,4 @@ Strain stock through wire mesh.  If you added a lot of water it is a good idea t
 Alternatively, you can use store bought beef stock, but you are sacrificing flavor.
 
 ## Chili Instructions:
-Brown meat in a pot.  Add onion.  add garlic.  add rotels.  cook for a bit.  add stock, spices, coffee, cook together for 30 min or so.  Mix masa with warm water and add to chili.  Cook until the sauce is thick and flavors come together.  Season to taste.
+Brown meat in a pot.  Add onion.  add garlic.  add rotels.  cook for a bit.  add stock, spices, coffee, cook together for 30 min or so.  Mix masa with warm water and add to chili.  Cook until the sauce is thick and flavors come together (at least 30 more min).  Season to taste.
